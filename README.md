@@ -24,7 +24,7 @@
 ![image](https://64.media.tumblr.com/3157443e7f9ed83bbd2ec11f8b80f721/0c9d6b33bcece83c-27/s100x200/1519fa7ea75393c67e7ffb3c2c50356cbaa91c71.gifv)
 ![image](https://64.media.tumblr.com/559d40d9ce84bf74592ef9ad461008d2/3e50603728b5b05a-cb/s75x75_c1/ed3879e223cfa3c6a2f5daf55d6592ccac246897.gifv)
 ![image](https://64.media.tumblr.com/fb2f260d9e2bb0d9b5cb773ee48ca62c/3e50603728b5b05a-c0/s100x200/30f76051a985bfe221d4b792f3429a9c7a238d58.jpg)
-![image](https://64.media.tumblr.com/36c07a66d67915ea428f2c4978e0a566/3e50603728b5b05a-ee/s100x200/77b5bf60ccaeb523befddcb519c0c37bed4c2b49.gifv) ## sorry for this
+![image](https://64.media.tumblr.com/36c07a66d67915ea428f2c4978e0a566/3e50603728b5b05a-ee/s100x200/77b5bf60ccaeb523befddcb519c0c37bed4c2b49.gifv)
 ![image](https://64.media.tumblr.com/817ff67e9c2fc3b9b4e0683c81f5edc8/3e50603728b5b05a-f8/s100x200/552616b55bbd4eb0b08b10833cf0d2db0fbfeb2c.gifv)
 
 ![image](https://64.media.tumblr.com/2477a9683efdb8be638c89a558ee4fed/89eff283b348979f-88/s400x600/ebad58449f7076c1a25327af513f456a8669395d.gifv)
@@ -49,7 +49,7 @@ sasuke images!
 
 ![image](https://64.media.tumblr.com/92ddb9deae14955d4006be7744e8f7b8/955ded49c6a25c7d-db/s1280x1920/857fca6b00c5a568adb6b1a3071eab7e92224d65.jpg)
 
-srry i had to put this..😅
+
 ![image](https://64.media.tumblr.com/53f9875d45fae708efc81572223e9b51/b2cb8c99f08ab124-70/s1280x1920/a635578c3590dcc660b0d89c04c15e83904265cc.pnj)
 (one more and there!)
 ![image](https://64.media.tumblr.com/ae9751a1c90a9dfd9eda97d5f0650d22/4c9a613b60d63ad4-06/s500x750/83d654fef6648e438408230257edea71f73af465.pnj)
@@ -57,6 +57,7 @@ srry i had to put this..😅
 ![image](https://64.media.tumblr.com/523831717edd8b6a7a1c396db48fd81c/b81673341ae28ed2-57/s75x75_c1/09730e3abd1567374c77e0ac7ea9310836f6eb09.gifv)
 ![image](https://64.media.tumblr.com/eb3dfc5c2be19876f41120a790875b36/6f53b0ab79a71bed-68/s100x200/d27c97960a8f565ef16f81491c5aed45fac697fe.gifv)
 ![image](https://64.media.tumblr.com/9305991405b2c5d89678d80c11a26eea/6f53b0ab79a71bed-0f/s100x200/096c1519722e8247279b7d530d3d19ffb303e1e0.gifv)
+
 guys stop Ik I keep putting these But i js love them together 
 
  team 7!
