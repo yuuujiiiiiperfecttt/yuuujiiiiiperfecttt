@@ -60,7 +60,7 @@
 ![image](https://64.media.tumblr.com/eb3dfc5c2be19876f41120a790875b36/6f53b0ab79a71bed-68/s100x200/d27c97960a8f565ef16f81491c5aed45fac697fe.gifv)
 ![image](https://64.media.tumblr.com/9305991405b2c5d89678d80c11a26eea/6f53b0ab79a71bed-0f/s100x200/096c1519722e8247279b7d530d3d19ffb303e1e0.gifv)
 
-guys stop Ik I keep putting these But i js love them together 
+guys stop Ik I keep putting these two tg But i js love them together 
 
  
 ![image](https://64.media.tumblr.com/47abc47e45e9ef5ad72eaac618c3e4c9/36ddbbe6552f81d0-ba/s100x200/64af92e06e679425019182c917c5db4f383b19cc.jpg)
