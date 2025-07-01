@@ -1,6 +1,6 @@
 ![IMG_4901](https://github.com/user-attachments/assets/73edc68a-f289-429d-8462-62809941dac5)
 ![IMG_4900](https://github.com/user-attachments/assets/2d30c88b-b0dc-4453-a3c2-cf92945124c4)
-
+https://i.postimg.cc/K8dwpLSw/nftkat.png
 
 ## sasunaru fan!
 <!--
@@ -17,4 +17,3 @@
 - 😄 Pronouns: ...
 
 -->
-https://i.postimg.cc/K8dwpLSw/nftkat.png
