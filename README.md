@@ -7,7 +7,7 @@
 ![image](https://64.media.tumblr.com/92b66b9fabda221c3af8bc68ee778b15/814c37176a513030-bf/s100x200/d5ff01e80ed11512648d75de4fc39352ecffb2f5.pnj)
 ![image](https://i.postimg.cc/qvVCN9gQ/tumblr-bad6c20226b3e46830f5d3f14f0dc0cb-a9253054-100.png)
 ![image](https://i.postimg.cc/tTVgh24V/4soyy4.png)
-![image(https://i.postimg.cc/d1qF5Fvd/inmpkr.gif)
+![image](https://i.postimg.cc/d1qF5Fvd/inmpkr.gif)
 ![image](https://i.postimg.cc/HxypJzpv/f3a6is.gif)
 ![image](https://i.postimg.cc/ZKF5Fw61/ii5fjk.png)
 ![image](https://i.postimg.cc/ZYvFNKLW/mnfojg.gif)
@@ -17,7 +17,7 @@
 ![image](https://64.media.tumblr.com/18efec6e8145249b5819c527f21df367/a2c22d45d485e6f7-52/s100x200/a6ed2c00d0138bd1ae451123f09caf40800ddf4c.gifv)
 ![image](https://64.media.tumblr.com/1aa66a56db7b0f3f2d4234bc5b2579a8/2078da70eb74e1c0-a1/s100x200/203a65381edb1b550de34870e62a494062bcbd75.webp)
 ![image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/dafb6d73-2160-495a-ae20-b3f50082b6ff/d15jm3t-9ac8dfe0-7d9f-4d0a-926d-25fbf62b173e.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2RhZmI2ZDczLTIxNjAtNDk1YS1hZTIwLWIzZjUwMDgyYjZmZlwvZDE1am0zdC05YWM4ZGZlMC03ZDlmLTRkMGEtOTI2ZC0yNWZiZjYyYjE3M2UuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.fhsJnCIXK0XruJjNg-dDZ5xHrcz_pGPEt6LLEjvg-D4)
-![image](https://64.media.tumblr.com/ec0a9c5a8c16f6d79e85b5ef91019343/e0a81fd32df4ce55-b0/s100x200/51b845183da5a3d215655b5194963f40cd695d0e.gifv
+![image](https://64.media.tumblr.com/ec0a9c5a8c16f6d79e85b5ef91019343/e0a81fd32df4ce55-b0/s100x200/51b845183da5a3d215655b5194963f40cd695d0e.gifv)
 ## Sasunaru Stamps!! (i stan them!)
 ![image](https://64.media.tumblr.com/f3684b3d0572fc8e333b736995b4bed4/0c9d6b33bcece83c-27/s100x200/46001306742557758f0f023ec2448648bd64836e.gifv)
 ![image](https://64.media.tumblr.com/f43b24db9e28229ffc5ca8d0af7b2f30/0c9d6b33bcece83c-b2/s100x200/d5bb909bc5c28cc27d9327876118623dd3287b69.pnj)
