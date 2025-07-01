@@ -1,3 +1,5 @@
+## I STAN SASUNARU 
+(if you don't like this Exit now.)
 ![IMG_4901](https://github.com/user-attachments/assets/73edc68a-f289-429d-8462-62809941dac5)
 ![IMG_4900](https://github.com/user-attachments/assets/2d30c88b-b0dc-4453-a3c2-cf92945124c4)
 ![image](https://i.postimg.cc/DzT5bcKv/tumblr-9d2c1e47f4a960ea6737836b3c917c8b-faf66db9-100.png)
