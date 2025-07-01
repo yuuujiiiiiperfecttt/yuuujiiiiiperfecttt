@@ -1,3 +1,6 @@
+![IMG_4900](https://github.com/user-attachments/assets/2d30c88b-b0dc-4453-a3c2-cf92945124c4)
+
+
 ## sasunaru fan!
 <!--
 **yuuujiiiiiperfecttt/yuuujiiiiiperfecttt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
