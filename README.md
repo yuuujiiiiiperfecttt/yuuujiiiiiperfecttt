@@ -30,7 +30,8 @@
 ![image](https://64.media.tumblr.com/2477a9683efdb8be638c89a558ee4fed/89eff283b348979f-88/s400x600/ebad58449f7076c1a25327af513f456a8669395d.gifv)
 
 ![image](https://64.media.tumblr.com/036e48cbf58a25d6f535bf3dc5505610/1a189060694830cd-9c/s100x200/973d02acaafad734c14654770b36c8270164f1f2.jpg)
-          sasuke images!
+          
+sasuke images!
 ![image](https://64.media.tumblr.com/2ec8bb89348827b6897cda74ac970158/1969d3fd22d19101-70/s100x200/614ad02acd77eb9730e54767a866c12a36ec8ffc.gifv)
 ![image](https://64.media.tumblr.com/c2e3cd3ed0e6d15358e4b24dfbce383c/1969d3fd22d19101-a6/s100x200/98a32363e89b2fdabfd925251beb8597c16ff783.jpg)
 ![image](https://64.media.tumblr.com/fd9d11fd27dfcc7964ef3486b58d0032/1969d3fd22d19101-d2/s100x200/17318596cf9667c8b93ae0ae8411b3e125e39703.pnj)
@@ -45,9 +46,10 @@
 ![image](https://64.media.tumblr.com/1a7a46a933825c99732690cce776624f/f7622c48ebb580cd-d5/s500x750/1be0d1984ef106e7b6f21d8452e9da5b5c150436.jpg)
 ![image](https://64.media.tumblr.com/d91f867427169f9dc8f0d8001e5e5ba1/768dd4f679162cb3-e3/s1280x1920/798353f55d27ba2395310f0ec5337cab2541f01b.jpg)
 
-  Nrt images!
+
 ![image](https://64.media.tumblr.com/92ddb9deae14955d4006be7744e8f7b8/955ded49c6a25c7d-db/s1280x1920/857fca6b00c5a568adb6b1a3071eab7e92224d65.jpg)
-(srry i had to put this..😅)
+
+srry i had to put this..😅
 ![image](https://64.media.tumblr.com/53f9875d45fae708efc81572223e9b51/b2cb8c99f08ab124-70/s1280x1920/a635578c3590dcc660b0d89c04c15e83904265cc.pnj)
 (one more and there!)
 ![image](https://64.media.tumblr.com/ae9751a1c90a9dfd9eda97d5f0650d22/4c9a613b60d63ad4-06/s500x750/83d654fef6648e438408230257edea71f73af465.pnj)
@@ -57,7 +59,7 @@
 ![image](https://64.media.tumblr.com/9305991405b2c5d89678d80c11a26eea/6f53b0ab79a71bed-0f/s100x200/096c1519722e8247279b7d530d3d19ffb303e1e0.gifv)
 guys stop Ik I keep putting these But i js love them together 
 
-team 7!
+ team 7!
 ![image](https://64.media.tumblr.com/47abc47e45e9ef5ad72eaac618c3e4c9/36ddbbe6552f81d0-ba/s100x200/64af92e06e679425019182c917c5db4f383b19cc.jpg)
 ![image](https://64.media.tumblr.com/3662b03d29edd9d4947aae72d3b3f85a/36ddbbe6552f81d0-e0/s100x200/0e239df07bd23a6f12045e5b977abbf016c6488c.gifv)
 ![image](https://64.media.tumblr.com/7f95e5c8dea1057353fcd0d9b0d86e3d/36ddbbe6552f81d0-f3/s100x200/cab60d73e280f36642bd5d855f633d19fca67236.jpg)
@@ -74,6 +76,7 @@ now Naruto imgs!
 ![image](https://64.media.tumblr.com/83439d89febd682f8b852f1931458d35/c3c142b1f1730cc2-c5/s100x200/82b2e4f3462e81e871113da36deb953ddc266d98.gifv)
 
 One last sasunaru
+
 ![image](https://64.media.tumblr.com/b37d5b8bc794d63aae1d59a5cfd7100d/93b14f5d28ae4121-43/s100x200/524a17ffa5664bae2f45658f8996417e4bb5f4dd.gifv)
 
 okay now Byeee thank you!!!
