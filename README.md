@@ -4,7 +4,12 @@ hey welcome, okay So The names evan !! bye
 ![image](https://64.media.tumblr.com/71ba890e52cf8b0d06fb0f474679b8fe/f6eb5b38cf345974-ba/s500x750/12902368e3cb6bd47f9e85448dd92b04198b7b25.pnj)
 ![image](https://64.media.tumblr.com/519d731074fcdc98cb338045f1e8429a/0d0c4951b4686fdf-09/s400x600/c5a6a7ad4e7beed977538380cc047151e381ec73.gifv)
 
+Dni!!
+-------
+if you are someone who harasses Someone
+for being weird and continue doing it your clearly immature and Cannot get your own Life situated.
 
+dnt int if you are someone like that thanks!
 
 
 
