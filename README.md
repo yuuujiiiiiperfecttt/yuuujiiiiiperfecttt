@@ -30,7 +30,7 @@
       <img src="https://files.catbox.moe/x3vpu1.gif">
    im a minor Btw!! <br>
       <img src="https://files.catbox.moe/18x9lq.gif">
-    ext ext ext ext lala <br>
+   fav character is Mc and Pierrot<br>
       <img src="https://files.catbox.moe/xq8z89.gif">
     lalalaalalallalalalala <br>
       </div>
