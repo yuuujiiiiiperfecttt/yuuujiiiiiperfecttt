@@ -28,7 +28,7 @@
       <img src="https://wilardo.crd.co/assets/images/gallery02/d2fcc426.gif?v=587f0c5f">
     usually unactive doing other things!!! <br>
       <img src="https://files.catbox.moe/x3vpu1.gif">
-   im a minor Btw (3teen soon 4teen in feb 6 hard finding ppl my age!) <br>
+   im a minor Btw ! <br>
       <img src="https://files.catbox.moe/18x9lq.gif">
    fav character is Mc and Pierrot<br>
       <img src="https://files.catbox.moe/xq8z89.gif">
